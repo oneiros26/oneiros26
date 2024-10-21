@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @oneiros26
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning C# and Front-end
+- 💞️ I’m looking to collaborate on anything :D
+- 📫 How to reach me: sobisekvit@gmail.com
+- 😄 Pronouns: normal/lol
+- ⚡ <s>Fun</s> Sad fact: i play valorant
